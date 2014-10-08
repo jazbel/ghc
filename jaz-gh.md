@@ -1,1 +1,1 @@
-![](https://www.google.ca/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&docid=V1zzU0lbaCCEdM&tbnid=qvQZGUhZ880JeM:&ved=0CAUQjhw&url=http%3A%2F%2Fwww.history.navy.mil%2Fphotos%2Fpers-us%2Fuspers-h%2Fg-hoppr.htm&ei=B701VMPpMcGfyAT2toCIBQ&bvm=bv.76943099,d.dGc&psig=AFQjCNEfC2dqJWGUCuhQD2IKeN5STdM1IA&ust=1412894335692714)
+![](http://www.history.navy.mil/photos/images/h96000/h96919k.jpg)
